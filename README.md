@@ -1,0 +1,2 @@
+# creativelyfe
+I’m a copywriter and storyteller with a long-time interest in the art and science of persuasion and have studied copywriting, advertising and marketing for nearly four years. Specialties include email marketing, campaigns, and landing pages. I create compelling marketing content that builds your business with organized and high-performing words. There’s a special place in my heart for the arts and non-profits, science, new technology, and start-up businesses.
